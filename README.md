@@ -1,2 +1,2 @@
-# Induction
-Gndec Induction Program 2025
+# Induction 2025 @ GNDEC
+##Day 1
