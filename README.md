@@ -2,21 +2,25 @@
 ## Day 1
 #### *30/7/2025*  
 ---
-My first day at **GNDEC** started with all the students assembling in the auditorium. The atmosphere was energetic, and the stage was beautifully decorated. After waiting for some time, the host invited the first speaker, Harpreet Mam (*HOD of Applied Sciences*). She motivated us to be disciplined in all walks of life and encouraged us to work hard in life.
+My first day at **Guru Nanak Dev Engineering College** began with an assembly of all the students in the college auditorium. The atmosphere was vibrant and filled with anticipation. The stage was elegantly decorated, setting a warm and welcoming tone for the day.
 
-Then our principal sir welcomed us on this auspicious occasion of the 70th anniversary of this institution and talked to us about the things that GNDEC has achieved in the past and told us about the inspiring stories of the alumni.
+The program commenced with an address by Dr. Harpreet Kaur, Head of the Department of Applied Sciences. She delivered an inspiring speech emphasizing the importance of discipline and consistent hard work in achieving success across all areas of life.
 
-Then they gave us a tour of the college campus, while sharing valuable information.
+Following this, the Principal formally welcomed us on the momentous occasion of the 70th anniversary of the institution. He highlighted GNDEC’s legacy of academic excellence and shared remarkable achievements of the college over the years. His speech included motivating anecdotes about the college’s distinguished alumni, which left a lasting impression.
+
+The orientation concluded with a guided tour of the campus, during which faculty members shared insightful information about various facilities, departments, and resources available to students
 
 ---
 ## Day 2
 #### *1/8/2025*
 ---
-My day at **GNDEC** started with a morning prayer. Harpreet mam introduced us to Dr. Priya Darshni, a very calm, kind and joyful personality. She first took introduction randomly of five students and asked them about what is their goal in life.
+The day at **GNDEC** began with a peaceful morning prayer that set a calm and positive tone. Soon after, Harpreet Ma’am introduced us to Dr. Priya Darshni, who instantly came across as a warm, kind, and cheerful person. To break the ice, she randomly picked five students and asked them about their goals in life. It was a light yet thoughtful start that made everyone feel involved.
 
-Then she started lecturing us about the subject "*Universal Human Values*". This was a amazing experience as we got to know that everybody's goal in life is same i.e "Happiness and Prosperity" and how to achive it. She also changed our mindset that physical facilities is not enough to be happy in life but having both good relationships and right understanding will make us happy in life.
+She then began a session on "**Universal Human Values**", which turned out to be much more engaging than I had expected. One of the most eye-opening parts was when she talked about how, deep down, all of us are striving for the same things — happiness and prosperity — and how we can achieve them. She helped shift our thinking by showing us that material things alone don’t bring happiness. Instead, it’s the quality of our relationships and having the right understanding of life that truly matter.
 
-Afterwards, Dr. Arvind Dhingra (*Director of STEM and Incharge of TAC*) gave us a lecture about how the engineer institution works and how to be a part of it. Then he also offered us to be a part of the activities done, at last it was a joyful experience.
+Later, we had a session with Dr. Arvind Dhingra, the Director of STEM and Incharge of TAC. He explained how the engineering institution functions and encouraged us to get involved in the various opportunities available on campus. His talk made me realize how much we can gain if we actively participate beyond just academics.
+
+Overall, it was an inspiring and refreshing experience. I left feeling more connected to the college and excited for the journey ahead.
 
 ---
 ## Day 3
