@@ -22,13 +22,19 @@ Afterwards, Dr. Arvind Dhingra (*Director of STEM and Incharge of TAC*) gave us 
 ## Day 3
 #### *4/8/2025*
 ---
-On the starting of the day all of us were anxious for gates of the auditorium to be opened. After sometime the gates were opened, the moment for which all of us were waiting for.
-Then first we were told to recite the *sacred mantra* of our religion and to clear all the thoughts that where going on in our minds, so that we can foucs on the lecture that was to be given.
+At the start of the day, all of us were anxious for the gates of the auditorium to be opened. After some time, the gates were opened, the moment for which all of us were waiting.
+First, we were told to recite the *sacred mantra* of our religion and to clear all the thoughts that were going on in our minds, so that we could focus on the lecture that was to be given.
 
-Afterwards, team members of the **Causmic Club** took the stage to address us about their club. They showed us all the events that they managed and made them fruitful. They told us that the whole club is run by students itself and we can also become the members too, although it has some of the faculty members involved too. They also guided us how to use github.
+Afterwards, team members of the **Causmic Club** took the stage to address us about their club. They showed us all the events that they managed and made them fruitful. They told us that the whole club is run by students themselves, and we can also become members, although it has some faculty members involved, too. They also guided us on how to use GitHub.
 
-Then talk about motorsports begin and it was very interesting for a guy like me who is very much fond of cars and racing. Although it was only procceded for short period of time but was amazing.
+Then the talk about motorsports began, and it was very interesting for a guy like me who is very fond of cars and racing. Although it was only proceeded for a short time, it was amazing.
 
-At last there was a lecture by Dr. Dr. Priya Darshni further on "*Universal Human Values*", it was good and I got know some new things about life. Afterwards we went to the classes for our lectures.
+At last, there was a lecture by Dr. Priya Darshni further on "*Universal Human Values*"; it was good, and I got to know some new things about life. Afterwards, we went to the classes for our lectures.
+
+---
+## Day 4
+#### *5/8/2025*
+---
+There is nothing much to describe, as today we only attend college for a short period. But one lecture about millets was interesting. So a lecture about "**Millets Super Food**" was given by Mrs. Shaffy Makkar. She described how we can add millets to our daily diet and how much protein and fiber they can provide to our body. In this lecture, I learned about the benefits of millet for our health, including its ability to cure various day-to-day health issues and some serious diseases. She also taught us how to cook millet properly so that it can nourish our body well. This was all for today.
 
 ---
