@@ -42,3 +42,13 @@ At last, there was a lecture by Dr. Priya Darshni further on "*Universal Human V
 There is nothing much to describe, as today we only attend college for a short period. But one lecture about millets was interesting. So a lecture about "**Millets Super Food**" was given by Mrs. Shaffy Makkar. She described how we can add millets to our daily diet and how much protein and fiber they can provide to our body. In this lecture, I learned about the benefits of millet for our health, including its ability to cure various day-to-day health issues and some serious diseases. She also taught us how to cook millet properly so that it can nourish our body well. This was all for today.
 
 ---
+## Day 5
+#### *6/8/2025*
+Today was a great day for me at **GNDEC**. First lecture was given by Dr. Parminder Singh, Dean of Student Welfare. He described about different activities that were active in college and run by the students itself. And told how Student Welfare committee is helping students.
+
+Then there was a lecture about **Physical Fitnees** given by Mr. Manpreet Singh, who is a professional fitness coach. He talked about how it is important for engineers to be physicaly and mentally fit and strong. He recommended some exercises too, that we could do for better muscle growth and better health. It was an amazing lecture and I am going to apply few tips also that he gave, in my life.
+
+Then at last Brigadier P.S. Cheema sir gave an lecture about discipline and commitment towards our life goals and he also taught us the lessons that he had learned in his life.
+It was a wonderful day.
+
+---
