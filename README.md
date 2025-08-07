@@ -52,3 +52,6 @@ Then at last Brigadier P.S. Cheema sir gave an lecture about discipline and comm
 It was a wonderful day.
 
 ---
+## Day 6
+#### *7/8/2025*
+cml great day
