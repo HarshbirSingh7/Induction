@@ -63,6 +63,15 @@ Afterwards to show our devotion and pay respects to god the college had organize
 Then there was a lecture by Dr. Jasvir Singh Grewal incharge of NSS.He described that NSS is not only about planting trees, but more. He also showed us a video about an island where different bird species are dying because of plastic intake. Literally plastic bottle caps, etc, were found inside their bodies. After watching this I was deeply concerned about the environment. Then to conclude the day there were some fun activites which the NSS members had planned for us.
 
 ---
+## Day 7
+#### *23/8/2025*
+After two to three weeks of academic classes, today marked the seventh day of the induction program.
+
+The session began with an engaging introduction by the executive members of the **Mathemagic Club**, followed by a presentation from the English Club. Next, a representative from **IKAGAI (***School of AI***)** took the stage for an interactive session. He spoke about *Artificial Intelligence*, describing it as a major revolution for humanity, and highlighted how learning AI can be a valuable skill for future placements.
+
+To conclude the day, the organizers had arranged some enjoyable games, which added a fun and refreshing end to the program.
+
+---
 # **Conclusion**
 
 ### Day 1 – 30th July 2025
@@ -113,6 +122,11 @@ Then there was a lecture by Dr. Jasvir Singh Grewal incharge of NSS.He described
 * Dr. Jasvir Singh Grewal, NSS Incharge, conducted an awareness session on environmental conservation, underscoring the dangers of plastic pollution through impactful visuals.
 
 * The day concluded with engaging and team-building activities facilitated by NSS members, reinforcing community spirit.
+
+---
+### Day 7 - 23rd August 2025
+* The seventh day of the induction program was both informative and enjoyable, with insightful sessions from various clubs and IKAGAI,
+  followed by fun games that made the day memorable.
 
 ---
 ## **Experience**
