@@ -72,6 +72,22 @@ The session began with an engaging introduction by the executive members of the 
 To conclude the day, the organizers had arranged some enjoyable games, which added a fun and refreshing end to the program.
 
 ---
+## Day 8
+#### *30/8/2025*
+After a week, there was another session under the **Induction Program**. Firstly there was an expert lecture by Prof. Arshdeep Singh on **Food**. He cleared all our misconceptions about food we were eating and about new trends (vegan food). He says that getting a proper daily diet will never affect our health.
+
+Then there was an exciting lecture by Dr Jaswinder Singh (JaswinS lab on wheels). He was very friendly. His talks were very inspiring about faith in God. He all gave us some tricks to easily solve mathematics problems.
+
+Then stage was taken by Riya Arora, talked about how there is a lot of talent in punjab for VFX, 3D Animation and how there organization helps to grow a career in this field.
+
+At last, various clubs (i.e English Club, TCS and Mathemagic Club) gave us there introduction and how can we apply for recruitment in these clubs. This was all for the day.
+
+Some glimpses of the day...
+
+<img src="https://github.com/user-attachments/assets/430c8c7d-c249-4207-9785-8a40b75acf0a" width="300" height="500">    <img src="https://github.com/user-attachments/assets/1c9e5d90-e8ba-4980-a842-6322d6a49968" width="500" height="500">
+
+
+---
 # **Conclusion**
 
 ### Day 1 – 30th July 2025
@@ -127,6 +143,16 @@ To conclude the day, the organizers had arranged some enjoyable games, which add
 ### Day 7 - 23rd August 2025
 * The seventh day of the induction program was both informative and enjoyable, with insightful sessions from various clubs and IKAGAI,
   followed by fun games that made the day memorable.
+
+---
+### Day 8 - 30th August 2025
+*Prof. Arshdeep Singh’s lecture on Food – Cleared misconceptions about diet, emphasized balanced nutrition, and discussed vegan food trends.
+
+*Dr. Jaswinder Singh (JaswinS Lab on Wheels) – Friendly and inspiring talk about faith in God, along with simple tricks for solving math problems.
+
+*Riya Arora’s session – Spoke about career opportunities in VFX and 3D Animation and highlighted Punjab’s talent in this field.
+
+*Club introductions – English Club, TCS, and Mathemagic Club introduced their activities and shared recruitment details.
 
 ---
 ## **Experience**
